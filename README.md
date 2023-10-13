@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cut-a-rug
+- 👋 Hi, I’m @jonmjcooper
 - 👀 I’m interested in acting, art, theatre, music, and waffles. 
 - 🌱 I’m currently learning scratch
 - 💞️ I’m looking to collaborate on any creative projects. 
